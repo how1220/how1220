@@ -1,5 +1,5 @@
 - 👋 Hi, I’m 黃政豪
-- 👀 I’m interested in 把必修學分修完 工作（科技公司）協助家業 好好精進個人本職學能 砥礪品德 努力學習
+- 👀 I’m interested in 努力把畢業學分修完 工作（科技公司）協助家業 好好精進個人本職學能 砥礪品德 努力學習
 - 🌱 I’m currently learning 航管系
 - 💞️ I’m looking to collaborate on no
 - 📫 How to reach me no
