@@ -2,7 +2,8 @@
 - 👀 I’m interested in 西洋棋
 - 🌱 I’m currently learning 航管系
 - 💞️ I’m looking to collaborate on no
-- 📫 How to reach me LINE:how1220
+- 📫 How to reach me no
+  
 - 😄 Pronouns: no
 - ⚡ Fun fact: no
 
